@@ -1,2 +1,0 @@
-# ePelaporan-Gerakan-
-Untuk Pelaporan
